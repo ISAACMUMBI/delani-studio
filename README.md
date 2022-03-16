@@ -1,1 +1,1 @@
-delani studio
+DELANI STUDIO
